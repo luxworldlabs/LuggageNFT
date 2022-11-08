@@ -1,1 +1,1 @@
-# LuggageNFT
+# LuxWorld - LuggageNFT
